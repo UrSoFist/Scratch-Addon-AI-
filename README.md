@@ -1,0 +1,1 @@
+this is how you can use this: first open scratch then you should go to scratch addons search AI and then turn it on go to scratch and have a good day
